@@ -6,3 +6,5 @@ estoy buscando colaborar en pasantias de tester junior
 
 puedes contactarme en :
 
+joaquinmayorga991@gmail.com
+
