@@ -2,7 +2,7 @@
 
 actualmente estoy estudiando contabilidad y testing 
 
-estoy buscando colaborar en pasantias de tester junior
+estoy buscando colaborar en trabajos de tester junior 
 
 puedes contactarme en :
 
