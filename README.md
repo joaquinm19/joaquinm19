@@ -1,4 +1,4 @@
-### Hi there 👋mi nombre es joaquin 
+### Hi there 👋 mi nombre es joaquin 
 
 actualmente estoy estudiando contabilidad y testing 
 
